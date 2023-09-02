@@ -1,1 +1,1 @@
-#Salus-Vita | Healthy body ->Soul
+#Salus-Vita | Healthy body ->Healthy Soul
